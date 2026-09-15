@@ -1,0 +1,1 @@
+# Munkedals kommun
